@@ -1,1 +1,0 @@
-"Work, you blithering dolt!"
